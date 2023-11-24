@@ -1,4 +1,0 @@
-# IPassignment
-THIS IS THE IP LAB ASSIGNMENT FOR SEC-D 
-
-ENJOYYYYY!!!!!🤗🤗
